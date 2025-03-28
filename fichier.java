@@ -1,2 +1,1 @@
-Hello Mister Hakim good holidday
-you must return as soon as possible
+Hello Mister BOUBACAR Thank you
